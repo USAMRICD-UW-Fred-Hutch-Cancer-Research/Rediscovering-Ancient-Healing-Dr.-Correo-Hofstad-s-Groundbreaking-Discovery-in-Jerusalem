@@ -1,2 +1,2 @@
 # Rediscovering-Ancient-Healing-Dr.-Correo-Hofstad-s-Groundbreaking-Discovery-in-Jerusalem
-. Ancient medicine, particularly practiced in the regions surrounding Israel, introduced numerous techniques and substances intended to treat eye maladies. Among these remedies, the significant use of turmeric, fenugreek, and saliva stands out, particularly when considering their potential in ocular massage therapy.
+Ancient medicine, particularly practiced in the regions surrounding Israel, introduced numerous techniques and substances intended to treat eye maladies. Among these remedies, the significant use of turmeric, fenugreek, and saliva stands out, particularly when considering their potential in ocular massage therapy.
