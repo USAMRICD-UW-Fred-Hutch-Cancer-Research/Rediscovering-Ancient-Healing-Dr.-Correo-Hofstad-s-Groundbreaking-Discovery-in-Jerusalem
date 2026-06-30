@@ -1,7 +1,7 @@
 # Export Control & Compliance Statement
 
 ## 1. Product Classification & Legal Counsel
-* **Item Name:** [Your Software Name / Repo Name]
+* **Item Name:** Rediscovering Ancient Healing Dr. Correo Hofstad's Groundbreaking Discovery in Jerusalem
 * **Jurisdiction:** U.S. Department of Commerce (Bureau of Industry and Security - BIS)
 * **Classification Status:** EAR99 (Medical Device Software / SaMD)
 * **Retained Counsel:** Fox Rothschild LLP (Medical Technology & International Trade Groups)
